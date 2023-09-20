@@ -3,6 +3,7 @@
 Perkenalkan nama saya **Jessica Theresia**.<br>
 
 Saya seorang **Pelajar** di [Dicoding](https://www.dicoding.com/).<br>
+kita bisa komunikasi melalui email saya : its.jessicatrs@gmail.com<br>
 
 
 <p align="left">
